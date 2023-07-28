@@ -12,10 +12,12 @@ pour moi tout seul
 
 
 
+
+
 ![petit chien derrière un grillage en haut d'un mur gris](/images/2d748f5a851f508c.png)
 
 
-23 juillet
+<small>23 juillet</small>
 
 
 les martinets à toute bombe  
@@ -28,7 +30,11 @@ pour célébrer les moucherons engloutis
 
 
 
-14 juillet
+<hr>
+
+
+
+<small>14 juillet</small>
 
 
 on m'a dit #partageTonCiel  
@@ -40,7 +46,7 @@ l'air libre file entre les nuages
 ![fils et câbles sur fond de ciel bleu nuageux, unoiseau perché en arrière-plan ](/images/fils.jpeg)
 
 
-7 juillet
+<small>7 juillet</small>
 
 
 du haut du pont   
@@ -55,6 +61,9 @@ sous l'eau peu profonde
 leur ombre grise les réplique  
 sur le fond clair et jauni  
 du fleuve affaibli  
+
+
+<hr>
 
 
 
