@@ -147,19 +147,20 @@ il marche en vacillant un peu
 
 28 mai 
 
-à pas comptés
-le long des fraisiers
-le chat progresse
-avec élégance
-pas une patte ne touche
-la moindre feuille
+à pas comptés  
+le long des fraisiers  
+le chat progresse  
+avec élégance  
+pas une patte ne touche  
+la moindre feuille  
 
-exactement à l'endroit choisi
-posé sur son séant
-il regarde ailleurs 
-très digne en chiant
+exactement à l'endroit choisi  
+posé sur son séant  
+il regarde ailleurs  
+très digne en chiant  
 
-quelques coups de griffe 
-dans la terre molle
-suffiront à ses yeux
+
+quelques coups de griffe  
+dans la terre molle  
+suffiront à ses yeux  
 pour masquer son étron 
