@@ -56,51 +56,56 @@ du fleuve affaibli
 
 30 juin
 
-soudain jeune fille bien droite
-sur sa trottinette électrique
-figure de proue fière et filant tout droit
-superbe et sans vaisseau pesant pour la suivre
-poitrine pointant vers plus loin
-— l'autre bout du boulevard au moins
-dans un glissement sans friction disparue
+soudain jeune fille bien droite  
+sur sa trottinette électrique  
+figure de proue fière et filant tout droit  
+superbe et sans vaisseau pesant pour la suivre  
+poitrine pointant vers plus loin  
+— l'autre bout du boulevard au moins  
+dans un glissement sans friction disparue  
+
 
 16 juin
 
 
-la pie s'ébroue sur la branche
-puis tombe comme une pierre
 
-par petits bonds de lapin
-elle pique les cerises
-déjà dans l'herbe
-c'est plus facile
+la pie s'ébroue sur la branche 
+puis tombe comme une pierre  
 
-alerte et fébrile
-à ma vue elle s'enfuit
+par petits bonds de lapin  
+elle pique les cerises  
+déjà dans l'herbe  
+c'est plus facile  
 
-de plus lourds flap flap
-pour décoller 
+
+alerte et fébrile  
+à ma vue elle s'enfuit  
+
+
+de plus lourds flap flap  
+pour décoller   
 
 
 9 juin
 
-revoici la saison
-où les chats disparaissent
-ne laissant pour trace
-que leur photo scotchée
-sur les arbres et réverbères
+revoici la saison  
+où les chats disparaissent  
+ne laissant pour trace  
+que leur photo scotchée  
+sur les arbres et réverbères  
 
-posant avec le petit nom tendre que leur donnent
-leurs humains éplorés et inquiets
-appelez ce numéro merci
+posant avec le petit nom tendre que leur donnent  
+leurs humains éplorés et inquiets  
+appelez ce numéro merci  
 
-chats disparus peut-être
-ou chats partis à l'aventure amoureuse
 
-de leurs cris de désir déchirants comme les cris d'un enfant
-ils agitent les nuits d'autres chats
-eux aussi disparus dans le grand rut
-des buissons odorants du printemps
+chats disparus peut-être  
+ou chats partis à l'aventure amoureuse  
+
+de leurs cris de désir déchirants comme les cris d'un enfant  
+ils agitent les nuits d'autres chats  
+eux aussi disparus dans le grand rut  
+des buissons odorants du printemps  
 
 
 2 juin
