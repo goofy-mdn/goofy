@@ -10,7 +10,8 @@ grillage aussi
 mais j'ai le ciel  
 pour moi tout seul  
 
-
+&nbsp;
+&nbsp;
 
 
 
@@ -45,6 +46,8 @@ l'air libre file entre les nuages
 
 ![fils et câbles sur fond de ciel bleu nuageux, unoiseau perché en arrière-plan ](/images/fils.jpeg)
 
+&nbsp;
+&nbsp;
 
 <small>7 juillet</small>
 
@@ -78,6 +81,11 @@ poitrine pointant vers plus loin
 dans un glissement sans friction disparue  
 
 
+<hr>
+&nbsp;
+&nbsp;
+
+
 16 juin
 
 
@@ -97,6 +105,11 @@ alerte et fébrile
 
 de plus lourds flap flap  
 pour décoller   
+
+
+<hr>
+&nbsp;
+&nbsp;
 
 
 9 juin
@@ -119,6 +132,11 @@ de leurs cris de désir déchirants comme les cris d'un enfant
 ils agitent les nuits d'autres chats  
 eux aussi disparus dans le grand rut  
 des buissons odorants du printemps  
+
+
+<hr>
+&nbsp;
+&nbsp;
 
 
 2 juin
@@ -157,6 +175,12 @@ il a quitté au matin
 l’hébergement d'urgence
 il marche en vacillant un peu
 à chaque pas il penche
+
+
+<hr>
+&nbsp;
+&nbsp;
+
 
 28 mai 
 
